@@ -18,3 +18,9 @@
 * [Topic Outlines from an ExamKrackers Tutor](http://charles.io/mcat/)
 * [Jack Westin Online Reading](http://forums.studentdoctor.net/threads/jack-westin-cars-course-practice-reading.1170083/)
 * [VaristyTutors](http://www.varsitytutors.com/free-mcat-resources): diagnostic and practice exams for content review, interactive syllabi, flashcards, and questions of the day
+
+**Study Guides [OLD] **
+https://www.reddit.com/r/premed/comments/3v2bui/mcat_study_guides_got_a_35/
+
+** Content Review ** 
+https://www.reddit.com/r/Mcat/wiki/contentreview?v=2e5eac7c-fe78-11e5-bace-0ee53cf27941
